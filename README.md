@@ -1,5 +1,5 @@
 # Websites
-Links to websites and or pages created by myself.
+Links to websites and or pages that I have created.
 
 https://www.optionsaccountingsolutions.ca/
 
